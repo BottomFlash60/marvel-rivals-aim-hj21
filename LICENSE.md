@@ -1,4 +1,4 @@
-
+Experience marvel rivals aim assist like never before with marvel rivals aim assist exclusive Aim Assist - enhanced hero vision and hero combo optimizer, the #1 aim assist.
 
 
 
